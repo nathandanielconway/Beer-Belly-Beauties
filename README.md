@@ -7,3 +7,6 @@ Real men who play real sports, swim in sty, flock birds, and rip upper decky pil
 - You pop lip pillows like you're the tooth fairy's arch nemesis
 - You buzz MORE than a couple beers
 - You play hockey (must have sty, cannot be a dust pigeon)
+
+# FOR SPECIAL CIRCUMSTANCE ONLY
+- If you buzz a chipotle gift card activation code to conwaynd@hiram.edu, there is a possibility for inclusion to the list if you do not meet the full criteria...
